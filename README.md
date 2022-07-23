@@ -18,6 +18,4 @@
  
 - You can reach me through my email: shahin.shehab21@gmail.com
 
-- Pronouns: He/His.
-
 - Fun fact: I speak 3 languages, Assyrian, Arabic, and English + I play League of Legends & Age of Empires 😃😃😃.
